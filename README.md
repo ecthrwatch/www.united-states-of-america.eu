@@ -1,1 +1,0 @@
-# www.united-states-of-america.eu
